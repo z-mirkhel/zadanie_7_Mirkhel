@@ -1,1 +1,1 @@
-# zadanie_7_Mirkhel
+# galaxym-83.github.io
